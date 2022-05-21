@@ -1,2 +1,2 @@
-- 👋 https://twitter.com/dev_freedom
+- 👋 https://twitter.com/dev_freedom (blocked lol)
 
